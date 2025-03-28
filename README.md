@@ -2,6 +2,7 @@
 
 🔹 **Analista de Sistemas | Automação de Processos | Suporte Técnico**  
 🔹 **Especialista em Engenharia da Gestão e Qualidade de Projetos**  
+🔹 **Pós Graduado em Data Mining**  
 
 ---
 
